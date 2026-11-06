@@ -4,4 +4,4 @@ I really have nothing to write here tho so I might end it here. Anyway im named 
 and i live half my life on browsers
 ### Stats
 
-Yeah i havent done shit and im slow with shit but i tryna push out some good first issue helps
+Yeah i havent done shit and im slow with shit but i tryna push out some good first issue helps ig
